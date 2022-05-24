@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @j4ckp07x
+- 👋 Hi, I’m Ayden
 - 👀 I’m interested in Cybersecurity and Penetration Testing
 - 🌱 I’m currently studying for my eJPT
 - 📫 You can reach me on instagram @j4ckp07x
